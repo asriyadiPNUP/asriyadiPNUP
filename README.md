@@ -14,3 +14,15 @@ Here are some ideas to get you started:
 - 😄 Pronouns: ...
 - ⚡ Fun fact: ...
 -->
+# Halo semua! 
+
+Perkenalkan nama saya **Asriyadi**.\
+
+Saya seorang **Tenaga pengajar** di [PNUP](https://www.poliupg.ac.id/).\
+
+Saya bertanggung jawab pada beberapa mata kuliah yang diajarkan di Program studi Multimedia dan Jaringan 
+
+
+Jika kamu tertarik untuk berkenalan denganku, silakan ikuti akun [Linkedin](https://www.linkedin.com/in/asri-yadi-52a01722b/)ku ya.
+
+
